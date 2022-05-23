@@ -1,2 +1,0 @@
-# mightytech
-My Portfolio
